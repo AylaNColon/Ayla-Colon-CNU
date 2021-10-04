@@ -17,3 +17,4 @@ COVID really messed up a lot of people’s lives when it came to college life, i
 Comparing my freshman year self to now I am so proud of how much I have grown and how I now love CNU. I am now a part of four organizations and hold office positions in two of them. Whenever people ask me how I like my school I am always honest with them, I tell them at first I hated it here but now I love it because I have my people. I have a group of friends who make CNU feel like home. 
 
 While creating my Thinglink I really enjoyed walking down memory lane and looking at all my pictures and videos. I think the concept of an interactive map with memories is super personal and gives a good glimpse into my life. 
+
