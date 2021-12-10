@@ -10,6 +10,7 @@ My second favorite blog post was when we had to create out thinglink maps which 
 
 <iframe width="960" height="505.2631578947368" data-original-width="2052" data-original-height="1080" src="https://www.thinglink.com/card/1499581682355798018" type="text/html" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen scrolling="no"></iframe><script async src="//cdn.thinglink.me/jse/responsive.js"></script>
 
+
 Finally, the last assignment that was my favorite was the grant project. Although there were many parts to this project it did not seem like it was that much work than what it really was looking at as a whole. The topic me and my group members decided on was about the Latino culture which was very close to my heart since I am latina. I found it extremely interesting to learn so much about my culture in a setting I would have never thought of. 
 
 In preparation for the grant project we had to research other digital humanities projects similar to the one we wanted to create. This was a great opportunity to learn even more about the culture in so many different ways. The DH project I chose to research was about other latin neighborhoods around the United States and what each one is known for. I knew some of the neighborhoods and have even visited them too, however I definitely learned about many others that I can't wait to go visit. 
