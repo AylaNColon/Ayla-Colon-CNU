@@ -8,7 +8,7 @@ Also, instead of having to write papers, which so many people dislike about Engl
 
 My second favorite blog post was when we had to create out thinglink maps which were personalized to us about our experiences on campus. I loved looking back and reminiscing on memories I've had at CNU and remembering why I chose to come here and why I also chose to stay. There really is nothing like the CNU community and the people who make it feel like home. It was super nice being able to share my story and read/experience my classmates' experiences as well. It was another way I felt like I got to know them better without actually having to have a conversation with them. 
 
-
+<iframe width="960" height="505.2631578947368" data-original-width="2052" data-original-height="1080" src="https://www.thinglink.com/card/1499581682355798018" type="text/html" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen scrolling="no"></iframe><script async src="//cdn.thinglink.me/jse/responsive.js"></script>
 
 Finally, the last assignment that was my favorite was the grant project. Although there were many parts to this project it did not seem like it was that much work than what it really was looking at as a whole. The topic me and my group members decided on was about the Latino culture which was very close to my heart since I am latina. I found it extremely interesting to learn so much about my culture in a setting I would have never thought of. 
 
